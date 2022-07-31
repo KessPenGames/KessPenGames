@@ -1,2 +1,2 @@
 - 👋 Привет, я @KessPenGames
-- 📫 Мой дискорд - KessPenGames#6418, Мой вк - https://t.me/No_KessPen
+- 📫 Мой дискорд - No_KessPen#6418, Мой вк - https://t.me/No_KessPen
