@@ -1,2 +1,2 @@
-- 👋 Привет, я @KessPenGames
-- 📫 Мой дискорд - No_KessPen#6418, Мой вк - https://t.me/No_KessPen
+- 👋 Hello, im @KessPenGames
+- 📫 My Discord - No_KessPen#8173, My Telegramm - https://t.me/No_KessPen
