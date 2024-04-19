@@ -1,2 +1,2 @@
 - 👋 Hello, im @KessPenGames
-- 📫 My Discord - No_KessPen#8173, My Telegramm - https://t.me/No_KessPen
+- 📫 My Discord - no_kesspen, My Telegramm - https://t.me/No_KessPen
